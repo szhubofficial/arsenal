@@ -1,4 +1,4 @@
-# arsenal
+# Arsenal Aimbot Cheat
 https://discord.gg/nHa57exbN9
 
 ⚠️ | R-SHIFT to toggle menu 
